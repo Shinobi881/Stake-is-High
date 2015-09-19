@@ -1,1 +1,1 @@
-# Stake-is-High
+# Stakes-is-High
